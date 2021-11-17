@@ -1,2 +1,0 @@
-# truthasapublicgood.github.io
-website
